@@ -1,3 +1,2 @@
 # G4md0R.github.io
-Pages?
-idk
+I don't know what I am doing but it's fun
